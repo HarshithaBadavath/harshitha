@@ -30,11 +30,11 @@ Roll.No|Name
   * EEE
   * EIE
 
-**ALL time CR of VRSEC:**
-V.AARYAN SIDDHARTHA
+**NSS AD:**
+B.HARSHITHA
 
-**Coding Master:**
-T.UDAY GOPI SAI RAM
 
-**Elite Organiser:**
-Ch.VENKATA KALYAN
+**BLOOD DONAR(HAHA):**
+
+G.NIKHITHA
+
